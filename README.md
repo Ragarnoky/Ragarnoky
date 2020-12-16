@@ -6,3 +6,4 @@ also i think i made like 2 android apps that are probably garbage i think they'r
 
 
 [the ragarnoky channel](https://www.youtube.com/channel/UC3Y_eevUSaVNroiEPJubO0Q)
+[the ragarnoky twitter](https://twitter.com/ragarnokySQL)
